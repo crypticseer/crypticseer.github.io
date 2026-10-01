@@ -1,1 +1,1 @@
-# crypticseer.github.io.
+# crypticseer.github.io
